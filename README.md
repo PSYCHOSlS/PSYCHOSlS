@@ -1,4 +1,8 @@
-
+<p align="center"><img src="https://komarev.com/ghpvc/?username=soundrod&color=000000&style=for-the-badge&label=hunted"
+alt="visitors">
+<sub>⠀⠀</sub><br>
+<sub>⠀⠀</sub><br>
+<sub>⠀⠀</sub><br>
 <img align="left" width="50%" src="https://github.com/user-attachments/assets/0cea45a9-9a25-42c8-9535-769950c42f52" />
 <p align="center">
 <sub>hi im isaac or isiah</sub><br>
