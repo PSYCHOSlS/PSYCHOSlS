@@ -7,8 +7,7 @@ alt="visitors">
 <p align="center">
 <sub>hi im isaac or isiah</sub><br>
 <sub>he/she/it</sub><br>
-<sub>using this when i dont wanna talk</sub><br>
-<sub>im a borderline , grandiose narcissist and a system</sub><br>
+<sub> probably the worst narcissist ever
   <sub>i lack empathy unless close and idc</sub><br>
   <sub>⠀⠀</sub><br>
 <sub>⠀⠀</sub><br>
